@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rubysucide666
+- 👋 Hi, I’m @rubysuicide666
 - 👀 I’m interested in learning code on a professional level I am also interested in ethical hacking as well
 - 🌱 I’m currently learning the basics of coding & ethical hacking
 - 💞️ I’m looking to collaborate on anything once I know how to do it
