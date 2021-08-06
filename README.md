@@ -5,6 +5,6 @@
 - 📫 How to reach me 6147791439 or email me at heathersuicide666@aol.com
 
 <!---
-rubysucide666/rubysucide666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+rubysuicide666/rubysuicide666 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
